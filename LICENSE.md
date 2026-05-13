@@ -1,4 +1,4 @@
-#  
+#  best jujutsu shenanigans Scripts is the best jujutsu shenanigans Script, featuring speed and unlimited stamina. Safe and powerful for all your needs.
 
 
 
